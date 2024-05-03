@@ -1,1 +1,1 @@
-# WhimsyMod
+# WhimsyMod Wiki
